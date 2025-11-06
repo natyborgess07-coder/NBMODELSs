@@ -3,7 +3,7 @@
 ## 🚀 DEPLOY STATUS: SUCESSO
 **URL da Landing Page**: https://phs43xtpeh36.space.minimax.io
 
----
+
 
 ## ✅ OBJETIVOS ALCANÇADOS
 
